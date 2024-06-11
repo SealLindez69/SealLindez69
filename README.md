@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Seal. You can call me Ale, which pronounced as eyl.
+- - he/him/his
+- I am currently a high school student who's interested in psychology and drawing.
+- I do taekwondo, have weird humor (deal with it), and I like listening to music.
+- I'd like to learn about psychology, biology, English, and other things that suit my interests and passion.
+- ⚡ Fun fact: dyk that being in love is biochemically the same as having a severe obsessive compulsive disorder? realest shit
